@@ -3,6 +3,7 @@ layout: post
 title:  Consumism
 date:   2017-06-10  00:00:00
 ---
+> Just sample post, not a real blog. Further changes will have to be made to improve the styling ang English corrections.Who wants to bring children to this "Consumism"? Our purpose became to compete how much and what brand we can consume in lifetime. That's our value. We are wasting our entire lives to this. Just look at yourself from higher perspective. When did you stop being truly happy and free...lorem ipsum
 
 Who wants to bring children to this "Consumism"? Our purpose became to compete how much and what brand we can consume in lifetime. That's our value. We are wasting our entire lives to this. Just look at yourself from higher perspective. When did you stop being truly happy and free?
 
