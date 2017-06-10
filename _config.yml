@@ -1,7 +1,7 @@
 # Site settings
-title: slim
-baseurl: "/slim"
-url: "http://syaning.com"
+title: lean consciousness
+baseurl: "/Blog"
+url: "https://alessign.github.io"
 
 # Build settings
 kramdown:
