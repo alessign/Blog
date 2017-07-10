@@ -4,7 +4,7 @@ title:  Spring Cleaning
 date:   2017-05-10  00:00:00
 ---
 
-Spring cleaning in your mind.
+Spring cleaning for your mind.
 
 How often do you go through your stuff, sort it and get rid of items you no longer need? What's the impulse for it? Why do you even have the need to do it?
 
