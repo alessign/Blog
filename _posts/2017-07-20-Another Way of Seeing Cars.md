@@ -3,7 +3,7 @@ layout: post
 title:  Another Way of Seeing Cars
 date:   2017-07-20  00:00:00
 ---
->Why is it not a good idea to buy petrol car anymore...and how you've been tricked.
+>Why is it not the best idea to buy petrol car anymore...and how you could have been tricked.
 
 Let's not talk about pollution, this aspect is clear to everyone. There's many more issues the car manufacturers and marketing agencies are desperately covering up, so you keep buying their products and feel good about it.
 
