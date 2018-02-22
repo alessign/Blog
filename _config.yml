@@ -12,3 +12,6 @@ permalink: pretty
 # just leave blank to disable it
 google_analytics: 
 disqus_shortname: 
+
+plugins:
+  - jekyll-seo-tag
