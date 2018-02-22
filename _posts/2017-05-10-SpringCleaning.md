@@ -30,4 +30,6 @@ If you're ready to dig deeper into more heavy things in your life, it's always g
 Want to quit smoking? Find the underlying value of the energy causing you to smoke, integrate this energy or transform it to positive one and when the negative energy will leave your body or transform to positive, the coping mechanism isn't needed anymore. It will cease to exist. You might be shocked how this works.
 
 
+Buy me a coffee if you found this helpful ;-)
+
 [![paypal](https://www.paypalobjects.com/en_GB/i/btn/btn_donate_SM.gif)](https://www.paypal.com/cgi-bin/webscr?cmd=_donations&business=HRB3J4MZVN9W4)

@@ -30,3 +30,8 @@ Butt this doesn't end here. Even the idea of owning car is obscure. That's a pus
 The solution is to have car companies in the large cities of similar concept as Barclays/Santander bikes. You pay monthly fee, you can take any bike from point A, drive it to point B and someone else will take it from B to C. We don't need to own cars anymore and it's less headaches. If such a scheme would be in place, you can have up to 60% less cars parked in the cities, more space available and almost all cars would be in constant use. Not a waste of natures resources. It's not easy to do this transition, but just for a moment drop all the ideas you know about today’s world and cars, your feelings and connections to it and simply, without judgement, imagine how would it feel not to have the pressure on you, which is connected to a car ownership. Registration fees, fuel, oil change, parking fees, theft or intentional damage, MOT, etc. If you’d pay monthly fee for using the car and someone else have a headache with all of this, wouldn’t you prefer it? You’d have cars available everywhere, it’ll be only matter of preference.
 
 The week has 168 hours - for how many hours of driving per week are you using your own car?
+
+
+Buy me a coffee if you found this helpful ;-)
+
+[![paypal](https://www.paypalobjects.com/en_GB/i/btn/btn_donate_SM.gif)](https://www.paypal.com/cgi-bin/webscr?cmd=_donations&business=HRB3J4MZVN9W4)
