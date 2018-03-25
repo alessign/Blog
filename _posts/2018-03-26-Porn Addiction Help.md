@@ -122,7 +122,7 @@ Take your life into your hands and become an artist in your original way! Your r
 
 * _Writing is important part of the disconnecting process. If you read something short, you may remember all, or at least majority of the information. But if you read 50 pages of text, you will remember very little. The same is if you hear any information - if it’s short, you’ll remember the whole message, but if it’s a long talk, you find difficult to remember everything. If it’s important for you, you will naturally make notes to create reference points, so you can recreate the whole context later. By writing things down you allow your mind to wander deeper and absorb more information, or to be open to more information. You are extending the capacity of your brain by making reference points on paper, so you can remind yourself to context quickly. We are writing things down your brain is focusing on the information received, so it prevents to forget the backdrop is, that the brain is not Open to new information which leads to a larger scope, so it doesn’t forget it_.
 
-
+____
 
 _Buy me a coffee if you found this helpful_
 
