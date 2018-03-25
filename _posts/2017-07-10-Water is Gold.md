@@ -23,8 +23,3 @@ It all comes to the point of lack of understanding and education how our system 
 Can you understand what your body needs to thrive, not what you understand what you enjoy that tastes good? Can you separate these two? It doesn't mean that if it tastes great it's the best for your system.
 
 The trick is to take the items your body really thrives from and make them taste good so even your consciousness can enjoy it. Be it water or food.
-
-
-Buy me a coffee if you found this helpful ;-)
-
-[![paypal](https://www.paypalobjects.com/en_GB/i/btn/btn_donate_SM.gif)](https://www.paypal.com/cgi-bin/webscr?cmd=_donations&business=HRB3J4MZVN9W4)

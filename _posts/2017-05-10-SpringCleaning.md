@@ -28,8 +28,3 @@ Start with simple things like "now achievable" desires. Did you always wanted to
 If you're ready to dig deeper into more heavy things in your life, it's always good knowing that the only way we will deal with any negative energy is to face it. You can't change the past, but you can change the way you understand it.
 
 Want to quit smoking? Find the underlying value of the energy causing you to smoke, integrate this energy or transform it to positive one and when the negative energy will leave your body or transform to positive, the coping mechanism isn't needed anymore. It will cease to exist. You might be shocked how this works.
-
-
-Buy me a coffee if you found this helpful ;-)
-
-[![paypal](https://www.paypalobjects.com/en_GB/i/btn/btn_donate_SM.gif)](https://www.paypal.com/cgi-bin/webscr?cmd=_donations&business=HRB3J4MZVN9W4)
