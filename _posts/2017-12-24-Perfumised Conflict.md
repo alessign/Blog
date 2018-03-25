@@ -60,3 +60,4 @@ If you're waiting to be validated this way, this next extreme scenario proves th
 If you validate and accept yourself on the inside, suddenly you notice, that you stop looking for validations on the outside, because ultimately, this was the only validation you was looking for. You live with yourself 24/7 and this validation never expires unless you do. Getting validation from other people is short lived, bringing unhappiness. People coming and going, dying, changing opinions...you'll never succeed there.
 
 I do think that the smell of plain skin without any chemicals is the best smell ever and I see majority of perfumed products as deception because they wouldn’t sell otherwise!
+____
